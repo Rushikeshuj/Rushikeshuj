@@ -1,4 +1,4 @@
-👨💻 DevOps Engineer in the Making | Cloud & Automation Aficionado.
+👨💻 DevOps Engineer| Cloud & Automation Aficionado.
 
 🌟 About Me
 
